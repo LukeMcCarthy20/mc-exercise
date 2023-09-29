@@ -71,3 +71,9 @@ Never gonna say goodbye
 Never gonna tell a lie and hurt you -->
 
 - New Ted (Tom)
+
+
+just chillin in cedar rapids
+
+- luke 
+
